@@ -1,1 +1,1 @@
-# auto_lab2
+# Psarov Andrii
